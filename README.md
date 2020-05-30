@@ -1,1 +1,0 @@
-# Nidachanin_1042_
